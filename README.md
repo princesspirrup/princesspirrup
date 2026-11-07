@@ -1,5 +1,5 @@
 <p align="center">
-<img width="716" height="90" alt="download (50)-Photoroom" src="https://github.com/user-attachments/assets/a8cfba02-282f-40ca-b733-b43aabba531b" />
+<img width="670" height="90" alt="download (50)-Photoroom" src="https://github.com/user-attachments/assets/a8cfba02-282f-40ca-b733-b43aabba531b" />
 </p>
 
 <p align="center">
@@ -21,5 +21,5 @@ i love making friends! all positive int ok!
 </p>
 
 <p align="center">
-<img width="716" height="90" alt="download (50)-Photoroomj" src="https://github.com/user-attachments/assets/f88c5b8a-f825-4ebb-a8ca-ff4943a8f7a9" />
+<img width="670" height="90" alt="download (50)-Photoroomj" src="https://github.com/user-attachments/assets/f88c5b8a-f825-4ebb-a8ca-ff4943a8f7a9" />
 </p>
