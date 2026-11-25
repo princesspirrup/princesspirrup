@@ -1,5 +1,5 @@
 <p align="center">
-<img width="500" height="50" alt="tumblr_066ab9e9b127d9226f7b5b820af88ab8_f7246a2b_2048" src="https://github.com/user-attachments/assets/d13e3c5c-821c-4de8-9cd1-7d210d0cee8b" />
+<img width="585" height="22" alt="tumblr_c875bf59230df084eea1664d1fb0b2c1_930b0a16_640" src="https://github.com/user-attachments/assets/80fef9d8-87d0-48de-8d29-a87947fed8e1" />
 </p>
 
 <p align="center">
@@ -21,5 +21,5 @@ i love making friends! all positive int ok! <img width="20" height="20" alt="157
 </p>
 
 <p align="center">
-<img width="500" height="50" alt="tumblr_066ab9e9b127d9226f7b5b820af88ab8_f7246a2b_2048" src="https://github.com/user-attachments/assets/55cf98e3-b132-4ea2-8580-5ddb61f33116" />
+<img width="585" height="22" alt="tumblr_c875bf59230df084eea1664d1fb0b2c1_930b0a16_640" src="https://github.com/user-attachments/assets/5d76a96d-0b84-4339-a021-24c574e602ee" />
 </p>
