@@ -17,7 +17,7 @@
 other kins: damien sp, abaddon, tweek sp
 </p>
 <p align="center">
-i love making friends! all positive int ok! <img width="20" height="20" alt="1573184163400388658 (1)" src="https://github.com/user-attachments/assets/06ee4bc0-b12b-4ac5-a60a-77390f3c582d" />
+i love making friends! all positive int ok! <img width="20" height="20" alt="1573115810799419483" src="https://github.com/user-attachments/assets/b75f3abb-ac0a-4b17-9767-eb88f249080e" />
 </p>
 
 <p align="center">
