@@ -9,8 +9,7 @@
 <ins>hellpark pip</ins> fictionkin 𐕣 kintwins oti!
 </p>
 <p align="center">
-<img width="20" height="20" alt="tumblr_b0cb81b5aa1843ac1bd578edf783652a_e7796aad_75" src="https://github.com/user-attachments/assets/7b6cf0a3-1d63-49ae-863b-2f717f2b1ad7" />
-gay transsexual demonkin , taken
+<img width="20" height="20" <img width="20" height="20" alt="1573115774405574736 (1)" src="https://github.com/user-attachments/assets/c07fd5e8-bbb2-490f-971d-a40ffb96719b" /> gay transsexual demonkin , taken
 <p align="center">
 666teen soon 𖤐 december birthday
 </p>
@@ -18,7 +17,7 @@ gay transsexual demonkin , taken
 other kins: damien sp, abaddon, tweek sp
 </p>
 <p align="center">
-i love making friends! all positive int ok! <img width="20" height="20" alt="tumblr_8e6046d639faa389177fe0891d382da5_86365be1_75" src="https://github.com/user-attachments/assets/f99bdb92-a6d8-4a6e-a39c-26afa3946259" />
+i love making friends! all positive int ok! <img width="20" height="20" alt="1573184163400388658 (1)" src="https://github.com/user-attachments/assets/06ee4bc0-b12b-4ac5-a60a-77390f3c582d" />
 </p>
 
 <p align="center">
